@@ -1,1 +1,2 @@
-# Sherzodbek
+#Birirnchi loyiha
+
